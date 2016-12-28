@@ -1,0 +1,1 @@
+Go over exercise again. Literally didn't understand shit.
